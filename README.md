@@ -53,7 +53,7 @@ Vermelhos (Canal: Chiaroscuro Ateliê) - https://www.youtube.com/watch?v=bto4dKJ
 Violetas (Canal: Chiaroscuro Ateliê) - https://www.youtube.com/watch?v=jeZfxf0w1BQ
 [LIVE 199] PINTANDO O BRANCO - Como pintar a flor Copo de Leite (Canal: Chiaroscuro Ateliê) - https://www.youtube.com/watch?v=jguOADIl1o0
 
-- Outros links:
+- Outros links (sugeridos pelo Deep Research):
 https://www.assocbotanicalartists.com/post/botanical-art-techniques-asba-instalment-4-specialized-techniques-and-composition
 https://rossettiart.com/blogs/news/botanical-art-techniques-a-comprehensive-guide
 https://www.botanicalartandartists.com/colour-tips-techniques.html
