@@ -16,17 +16,17 @@ As fontes listadas abaixo são compostas de livros da minha biblioteca pessoal (
 vídeos do canal do youtube da professora Chiara Bozzetti (professora do Ateliê de pintura Chiaroscuro) e fontes sugeridas pelo Deep Research.
 
 - PDFs:
-Botanical Art with Scientific Illustration - Autor: Sarah Jane Humphrey.
-Botanical Illustration for Beginners: A Step-by-Step Guide - Autoras: Meriel Thurstan e Rosie Martin.
-Botanical Sketchbook: Inspiration and Guide to Keeping a Sketchbook - Autoras: Mary Ann Scott (com Margaret Stevens).
-Botany for the Artist - Autora: Sarah Simblet.
-The Art of Botanical & Bird Illustration - Autora: Mindy Lighthipe.
-The Big Book of Painting Nature in Watercolor - Autor: Ferdinand Petrie (com fotografias de John Shaw).
-The Golden Age of Botanical Art - Autor: Martyn Rix.
-The Modern Flower Painter: Creating Vibrant Botanical Portraits in Watercolour - Autora: Anna Mason.
-Watercolour Flower Portraits - Autora: Billy Showell.
-Портреты фруктов и овощей. Практическое руководство по рисованию акварелью (Portraits de Frutas e Vegetais / Guia Prático) - Autora: Billy Showell (edição em russo).
-Watercolor: Florals & Botanicals (Série How to Draw & Paint) - Autoras: Barbara Fudurich, Joan Hansen, Caroline Linscott e Geri Medway.
+Botanical Art with Scientific Illustration - Autor: Sarah Jane Humphrey. 
+Botanical Illustration for Beginners: A Step-by-Step Guide - Autoras: Meriel Thurstan e Rosie Martin. 
+Botanical Sketchbook: Inspiration and Guide to Keeping a Sketchbook - Autoras: Mary Ann Scott (com Margaret Stevens). 
+Botany for the Artist - Autora: Sarah Simblet. 
+The Art of Botanical & Bird Illustration - Autora: Mindy Lighthipe. 
+The Big Book of Painting Nature in Watercolor - Autor: Ferdinand Petrie (com fotografias de John Shaw). 
+The Golden Age of Botanical Art - Autor: Martyn Rix. 
+The Modern Flower Painter: Creating Vibrant Botanical Portraits in Watercolour - Autora: Anna Mason. 
+Watercolour Flower Portraits - Autora: Billy Showell. 
+Портреты фруктов и овощей. Практическое руководство по рисованию акварелью (Portraits de Frutas e Vegetais / Guia Prático) - Autora: Billy Showell (edição em russo). 
+Watercolor: Florals & Botanicals (Série How to Draw & Paint) - Autoras: Barbara Fudurich, Joan Hansen, Caroline Linscott e Geri Medway. 
 
 - Vídeos no Youtube:
 A Z U I S (Canal: Chiaroscuro Ateliê) - https://www.youtube.com/watch?v=SsF4-DXucfA
